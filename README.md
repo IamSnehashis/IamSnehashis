@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @IamSnehashis
-- 👀 I’m interested in Astronomy, football and Anime related stuffs and i also enjoy binge wathcing Netflix Series with my friends.
+- 👀 I’m interested in Astronomy, football and Anime related stuffs and i also enjoy binge watching Netflix Series with my friends.
 - 🌱 I’m currently learning Artificial intelligence and Machine learning
 - 💞️ I’m looking to collaborate on projects related to AI/ML or DL
 - 📫 How to reach me : You can reach me through my linkedln account( Snehashis Mandal) 
